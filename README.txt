@@ -1,1 +1,1 @@
-Cats help us out through through the floats and master css lay-out.
+In this projects cats the ruling species of internet help out through the floats and master css lay-outs. Aren't cats the best?
